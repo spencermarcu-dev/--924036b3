@@ -1,2 +1,2 @@
-# Spencer Marcu
+# SpencerMarcu
 American singer-songwriter
